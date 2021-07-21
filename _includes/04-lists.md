@@ -1,0 +1,4 @@
+- Programming
+- SEO
+- Watch videos
+- Earn time with my family
