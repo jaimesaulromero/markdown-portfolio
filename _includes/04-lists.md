@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+- Programming
+- SEO
+- Watch videos
+- Earn time with my family
